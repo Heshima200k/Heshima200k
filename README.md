@@ -174,9 +174,6 @@ Successfully completed Oracle Academy professional training focused on enterpris
 
 💻 GitHub: https://github.com/Heshima200k
 
-💼 LinkedIn: Add Your LinkedIn Profile
-
-📧 Email: Add Your Professional Email
 
 ---
 
